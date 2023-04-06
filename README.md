@@ -6,7 +6,7 @@
 ## Random Facts
 
 - ☕ I drink a lot of coffee.
-- 💻 I love coding, web development.
+- 💻 I love programming and web development.
 - 👨‍💻 I love problem solving.
 - 🎮 When I feel down I play animal crossing.
 - 📜 I want to learn all the 2,136 Kanjis.
