@@ -13,6 +13,7 @@ Currently living in the vibrant city of Tokyo, Japan 🌍, I balance coding, gam
 - ☕ Coffee Lover: Coffee keeps me going while I code.
 - 🎮 Gaming Fan: The Legend of Zelda: TOTK is my all-time favorite game!
 - 🎵 Music Enthusiast: I used to love metal, but now I’m into Japanese music.
+- 🌏 Dual Perspective: As a proud holder of Japanese citizenship, I embrace the culture and opportunities it brings.
 - 💡 Always Learning: I enjoy picking up new skills and improving myself.
 - 💻 Problem Solver: I’m ready for any coding challenge that comes my way!
 
